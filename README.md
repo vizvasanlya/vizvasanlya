@@ -1,4 +1,4 @@
-### Hi there, I'm Santhosh 👋
+### Hi there, I'm Teja 👋
 
 **Full-Stack Developer | Security Enthusiast | AI/ML Explorer**
 
